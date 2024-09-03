@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently learning.<br>I'm currently practice.<br>Focus on my Goal. 
+I'm currently learning.<br>I'm currently practice.<br>Focusing on coding. 
 
 
 ## 🌐 Socials:
